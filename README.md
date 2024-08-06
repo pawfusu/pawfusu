@@ -3,4 +3,4 @@
 cammy/remi or *andie*  <<preferred to be called by!!
 
 any or she/her • minor
-taken!! flirty pervs shoo plz i beg yall
+taken!!
